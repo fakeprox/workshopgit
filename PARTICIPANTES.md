@@ -1,2 +1,2 @@
 Lista de participantes
-Thiago Vinicius Jorge
+Teste - Thiago Vinicius Jorge
